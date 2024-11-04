@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hey Silver Chads! 👋
 
 **$XAG - The Silver Standard of Crypto**
 
